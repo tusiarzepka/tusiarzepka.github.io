@@ -1,3 +1,3 @@
 # tusiarzepka.github.io
 
-##Tusia Rzepka##
+##tusia rzepka##

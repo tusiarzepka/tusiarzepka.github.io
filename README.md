@@ -1,6 +1,6 @@
 # tusiarzepka.github.io
 
-### Doświadczenie\
+### Doświadczenie
 **szkoła podstawowa**\
 2009-2015
 
